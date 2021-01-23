@@ -20,15 +20,15 @@
 
 
 
-* 5) Uma curiosidade sobre a **fermentação**: ela pode ser feita em tanques de aço ou madeira. Vinhos feitos em tanque da aço têm  sabor mais frutado; quando a fermentação é feita em madeira, o vinho  ganha sabores amadeirados. Cada detalhe da fermentação é importante,  pois dela depende a qualidade do vinho. Por isso, temperatura,  oxigenação, contato com o ar e outros fatores devem ser bem analisados.
+* **5)** Uma curiosidade sobre a **fermentação**: ela pode ser feita em tanques de aço ou madeira. Vinhos feitos em tanque da aço têm  sabor mais frutado; quando a fermentação é feita em madeira, o vinho  ganha sabores amadeirados. Cada detalhe da fermentação é importante,  pois dela depende a qualidade do vinho. Por isso, temperatura,  oxigenação, contato com o ar e outros fatores devem ser bem analisados.
 
   
 
-* 6) Depois da remontagem, um registro na parte de baixo do **reservatório** é aberto, e a bebida é liberado.
+* **6)** Depois da remontagem, um registro na parte de baixo do **reservatório** é aberto, e a bebida é liberado.
 
   
 
-* 7) Antes de ser engarrafada, a bebida passa por **filtragens** para ficar com a aparência límpida.
+* **7)** Antes de ser engarrafada, a bebida passa por **filtragens** para ficar com a aparência límpida.
 
   
 

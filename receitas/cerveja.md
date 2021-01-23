@@ -2,7 +2,7 @@
 
 ## Ingrediente :book:
 
-* **Lúpulo Spalter Select**
+* **Lúpulo Spalter**
 
 * **Malte Pilsen BWS 5kg** 
 
@@ -18,7 +18,7 @@
 
   ## Modo de Preparo :bookmark_tabs:
 
-* **Moer os kg de malte. Para isso, utilize um moinho de disco ou um moinho de rolo.**
+* **Moer os 5kg de malte. Para isso, utilize um moinho de disco ou um moinho de rolo.**
 
 * **Dica: moer o suficiente para abrir o grão de malte e expor o amido sem prejudicar a casca do malte. A casca triturada dificulta a filtração do mosto.**
 
