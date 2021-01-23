@@ -16,7 +16,7 @@
 
 
 
-* 4) O processo de fermentação libera também o gás carbônico, que faz o  mosto ir para a superfície e se acumular lá. Para que a cor fique  homogênea, o líquido que fica embaixo do reservatório é bombeado para  cima, e isso se chama **remontagem**, que é interrompida após 4 dias, e o mosto é isolado do líquido.
+* **4)** O processo de fermentação libera também o gás carbônico, que faz o  mosto ir para a superfície e se acumular lá. Para que a cor fique  homogênea, o líquido que fica embaixo do reservatório é bombeado para  cima, e isso se chama **remontagem**, que é interrompida após 4 dias, e o mosto é isolado do líquido.
 
 
 
@@ -32,4 +32,10 @@
 
   
 
+  ### Bibliografia 
+  
+  **-https://blog.tudogostoso.com.br/noticias/como-o-vinho-e-feito/**
+  
+  
+  
   
